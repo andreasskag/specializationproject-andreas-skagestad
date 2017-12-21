@@ -1,1 +1,0 @@
-# specializationproject-andreas-skagestestad
